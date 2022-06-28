@@ -1,1 +1,1 @@
-Orangutans great. Gibbons are greatest.
+Orangutans are great. Gibbons are greatest.
